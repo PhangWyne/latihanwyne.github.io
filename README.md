@@ -1,0 +1,1 @@
+# latihanwyne.github.io
